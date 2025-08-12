@@ -1,5 +1,6 @@
 # jorgeeep
 
-Soy Jorge Peña, estudiante de comunicación visual en la Ciudad de México. Me gusta experimentar y tener libertad en mis trabajos.
+Jorge Peña estudiante de comunicación visual en la Ciudad de México. 
+me gustan los diseños lol
 
 instagram: [@jorge.penah](https://www.instagram.com/jorge.penah/)
